@@ -19,4 +19,4 @@
 
 
 ## [¡Contáctame!]
-`<💼 LinkedIn>` : <https://www.linkedin.com/in/jazm%C3%ADn-robles-4366b324b/>
+`<💼 LinkedIn>` : <https://www.linkedin.com/in/jazm%C3%ADn-robles/>
